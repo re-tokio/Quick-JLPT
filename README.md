@@ -1,6 +1,6 @@
 **Privacy Policy for Quick JLPT**
 
-Last updated: 31 December 2024
+Last updated: 01 January 2025
 
 Introduction
 
